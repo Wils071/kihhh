@@ -1,0 +1,1 @@
+saya hanya manusia biasa
